@@ -30,10 +30,20 @@ Before we dive into numbers, let's explore your relationship with money. This mi
 
 **Reflection Questions:**
 1. What messages did you receive about money growing up? (Write a few sentences)
+Answer: I was taught that, "the love of money is the root of all evil". This has caused me to have a negative outlook on money as any kind of want or desire to "make money" was viewed as a character flaw and wrong. I now value what money can provide, but I still don't have much of a drive to make a lot of money or become "rich".
+
 2. How do you feel when you think about your finances? (Be honest)
+Answer: I feel pretty good over all. I own a home and have investment accounts and a 401k. I hope to not touch the 401k but use my current saving and on-going work salary to purchase and build out the homestead in the first year.
+
 3. What's your biggest financial fear related to homesteading?
+Answer: Running out of money or running into an unexpected expense that causes me to have great difficulty.
+
 4. What would financial security look like to you?
+Answer: Getting to the point where I don't have any debt and can live off of investments and social security when I'm a senior.
+
 5. How do you want money to serve your homesteading vision?
+Answer: Fuel the work and progress.
+
 
 There are no right or wrong answers here. The goal is just to understand your starting point.
 
